@@ -5,46 +5,46 @@ tags: [A Tag, Test, Lorem, Ipsum]
 excerpt_separator: <!--more-->
 ---
 
-dalmadogs.com.co es un sitio de estafa!!!
-TENGA CUIDADO!
-Los propietarios del sitio fraudulento DALMADOGS y Zeus - Alaska.
-**SON UNOS ESTAFADORES!**
+dalmadogs.com.co es un sitio de estafa!!!  
+TENGA CUIDADO!  
+Los propietarios del sitio fraudulento DALMADOGS y Zeus - Alaska.  
+**SON UNOS ESTAFADORES!**  
 
 En este sitio se evidenciara y se expondra TODA la informacion concerniente a estos delincuentes que han jugado con los sentimientos de cientas de familias colombianas.
 
-LOS ESTAFADORES IDENTIFICADOS ACTUALMENTE SON:
-  * ANA LEIDA MARTINEZ DAGUA - CC 34772085 - BANCOLOMBIA 03006873637
-  * SERGIO CASALLAS MARTÍNEZ - C.C. 80002748 - BANCOLOMBIA 03178824709
-  * CAMILO MONTENEGRO C.C. 1080837394
-  * DIANA MARCELA SALAZAR AGUDELO - CC 1127535733
-  * Yesica Tatiana Rodriguez - CC: 1023916748 - Bancolombia 03022830781
-  * Martin Alberto Ditta Trespalacios (Sin Informacion - Por Ahora)
-  * Luz Amparo Dominguez Dominguez - CC 41929988 (Relacionada a codigo de mercado pago 110757) 
+LOS ESTAFADORES IDENTIFICADOS ACTUALMENTE SON:  
+  * ANA LEIDA MARTINEZ DAGUA - CC 34772085 - BANCOLOMBIA 03006873637  
+  * SERGIO CASALLAS MARTÍNEZ - C.C. 80002748 - BANCOLOMBIA 03178824709  
+  * CAMILO MONTENEGRO C.C. 1080837394  
+  * DIANA MARCELA SALAZAR AGUDELO - CC 1127535733  
+  * Yesica Tatiana Rodriguez - CC: 1023916748 - Bancolombia 03022830781  
+  * Martin Alberto Ditta Trespalacios (Sin Informacion - Por Ahora)  
+  * Luz Amparo Dominguez Dominguez - CC 41929988 (Relacionada a codigo de mercado pago 110757)  
 
-Tambien usan una modalidad de pago por Efecty junto con Mercado Pago.
-Por medio del # de Convenio 110757.
+Tambien usan una modalidad de pago por Efecty junto con Mercado Pago.  
+Por medio del # de Convenio 110757.  
 **NO CONSIGNAR NUNCA A NINGUNA DE LAS ANTERIORES CUENTAS!!!**
 
-Estas personas se dedican a estafar por medio de tecnicas de PHISHING.
-NO VENDEN NADA!!!
-NO CAIGA EN ENGAÑOS!!
+Estas personas se dedican a estafar por medio de tecnicas de PHISHING.  
+NO VENDEN NADA!!!  
+NO CAIGA EN ENGAÑOS!!  
 
 
-**TELEFONOS USADOS PARA ESTAFA:
-3144393528
-3013139537
-3013035858
-3146406539**
+**TELEFONOS USADOS PARA ESTAFA:  
+3144393528  
+3013139537  
+3013035858  
+3146406539**  
 
-Correos relacionados:
-atc@dalmadogs.com.co
+Correos relacionados:  
+atc@dalmadogs.com.co  
 criaderosdecolombia@gmail.com
 
-Se roban las imagenes de "clientes satistechos" del siguiente LINK:
+Se roban las imagenes de "clientes satistechos" del siguiente LINK:  
 https://www.instagram.com/tumascotaonlinecolombiia/
 
-Los siguientes links estan relacionado con falsas ventas.
-Actualmente, estan utilizando el SEO de Mercado libre y otras entidades famosas para promocionar sus ILEGALIDADES.
+Los siguientes links estan relacionado con falsas ventas.  
+Actualmente, estan utilizando el SEO de Mercado libre y otras entidades famosas para promocionar sus ILEGALIDADES.  
 https://twitter.com/dalmadogs_co/
 
 https://criaderosdecolombia.com.co/criadero-zeusyalaska.html
@@ -75,16 +75,16 @@ https://zeusyalaska.blogspot.com/
 
 
 
-RECIENTEMENTE, SE HA FILTRADO INFORMACION PERSONAL DE LA PERSONA LLAMADA: ANA LEIDA MARTINEZ DAGUA
-Esta persona se hace llamar asi misma como Genesis Alvarado.
-A continuacion, se expondra dicha informacion de esta delincuente ESTAFADORA.
+RECIENTEMENTE, SE HA FILTRADO INFORMACION PERSONAL DE LA PERSONA LLAMADA: ANA LEIDA MARTINEZ DAGUA  
+Esta persona se hace llamar asi misma como Genesis Alvarado.  
+A continuacion, se expondra dicha informacion de esta delincuente ESTAFADORA.  
 
-**ANA LEIDA MARTINEZ DAGUA - (Nombre Falso: Genesis Alvarado)**
-CC 34772085
-Lugar de Nacimiento: CALI - CALOTO
-Fecha de Nacimiento: 13/12/1985
+**ANA LEIDA MARTINEZ DAGUA - (Nombre Falso: Genesis Alvarado)**  
+CC 34772085  
+Lugar de Nacimiento: CALI - CALOTO  
+Fecha de Nacimiento: 13/12/1985  
 
-REDES SOCIALES DE FAMILIARES: 
+REDES SOCIALES DE FAMILIARES:   
 https://www.facebook.com/dominga.ramos.102361/
 https://www.facebook.com/paolaandrea.dagua.9
 https://www.facebook.com/rosalva.dagua
@@ -92,16 +92,16 @@ https://www.facebook.com/paolaandrea.gaguayule
 https://www.facebook.com/rosalba.dagua.7
 https://www.facebook.com/jhanpaul.gutierrezm
 
-HIJOS: 
-Juan Steven Mina Martinez 
+HIJOS:  
+Juan Steven Mina Martinez   
 Jhan Paul Gutierrez M
 
-Por otro lado, Se tiene certeza que el señor SERGIO CASALLAS MARTÍNEZ es un egresado del SENA; Como tecnico en sistemas.
+Por otro lado, Se tiene certeza que el señor SERGIO CASALLAS MARTÍNEZ es un egresado del SENA; Como tecnico en sistemas.  
 Y hay una alta probabilidad de que esta persona sea el diseñador web de toda este negocio FRAUDULENTO!
 
-Adjunto FOTOS reales y recientes de los criminales:
+Adjunto FOTOS reales y recientes de los criminales:  
 
-ANA LEIDA MARTINEZ DAGUA
+ANA LEIDA MARTINEZ DAGUA  
 Martin Alberto Ditta Trespalacios
 
 ![Travel]({{ "/assets/img/pexels/PUBLICAR.jpeg" | relative_url}})
