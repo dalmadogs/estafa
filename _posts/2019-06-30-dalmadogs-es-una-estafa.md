@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Sample post
-tags: [A Tag, Test, Lorem, Ipsum]
+title: INFORMACION RELACIONADA CON DALMADOGS
+tags: [criadero, perros, estafa, dalmadogs, bogota]
 excerpt_separator: <!--more-->
 ---
 
